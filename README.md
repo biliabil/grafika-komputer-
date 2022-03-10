@@ -1,0 +1,2 @@
+# grafika-komputer-
+seluruh praktikum
